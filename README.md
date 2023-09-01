@@ -99,3 +99,14 @@ Process List
 
 ⭐️And others
 
+JE NE SUIS PAS RESPONSABLE DE VOS UTILISATION 
+
+
+
+
+Aussi je tien à vous le dire j'ai mis à poil le .exe du rat pour voir si il n'y avait pas un virus mais non donc ici c'est l'officiel vous pourrez le tester il ne marche pas en VM je croit bien 
+
+
+
+
+METTEZ DES AVIS ET DES ETOILES SI VOUS APPROUVEZ LE TOOL 
